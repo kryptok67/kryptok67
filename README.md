@@ -1,8 +1,6 @@
 - 👋 Hi,
 - I’m @kryptok67
 - 👀 I’m interested in sport, coding and traveling
-- 123
-
 
   
 
