@@ -1,6 +1,6 @@
 - 👋 Hi,
 - I’m @kryptok67 kkkrypto
-- 👀 I’m interested in sport, coding and traveling and webdesign
+- 👀 I’m interested in sport, coding and traveling
 
   
 
