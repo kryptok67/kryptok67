@@ -2,7 +2,7 @@
 - I’m @kryptok67 kkkrypto
 - 👀 I’m interested in sport, coding and traveling
 
-ALWAYS HAVE A FUN and remember
+ALWAYS HAVE A FUN and remember rembember 
   
 
 
