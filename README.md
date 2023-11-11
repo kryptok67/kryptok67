@@ -3,4 +3,3 @@
 - 👀 I’m interested in sport, coding and traveling
 ALWAYS HAVE A FUN and remember rembembeR come back in september :D
 check my profile
-and know me 
