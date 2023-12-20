@@ -6,4 +6,3 @@ check my profile
 OR leave in peace
 long may he 
 - keep calm 
-- and programming 
